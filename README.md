@@ -1,1 +1,0 @@
-# stemos-squad.github.io
